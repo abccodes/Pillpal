@@ -1,0 +1,1 @@
+(c) 2022 Towa Industries, Inc. All rights reserved. Do not redistribute without permission.
